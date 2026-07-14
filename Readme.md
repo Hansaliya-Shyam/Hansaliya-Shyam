@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **hansaliyashyam19@outlook.com**
 
-- 📄 Know about my experiences **[https://docs.google.com/document/d/1YEDfR1oAh_dIChUb4twBFk-nSF8wf44zBztpdoBRfjA/edit?usp=sharing](https://docs.google.com/document/d/1YEDfR1oAh_dIChUb4twBFk-nSF8wf44zBztpdoBRfjA/edit?usp=sharing)**
+- 📄 Know about my experiences **[https://drive.google.com/file/d/1HpmlK-Fo7qRuE9HnFnS4xUTJ8XmU4fLr/view?usp=drive_link](https://drive.google.com/file/d/1HpmlK-Fo7qRuE9HnFnS4xUTJ8XmU4fLr/view?usp=drive_link)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
